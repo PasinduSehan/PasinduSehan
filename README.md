@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @PasinduSehan
+- 👀 I’m interested in software engineering
+- 🌱 I’m currently learning at NIBM
+- 💞️ I’m looking to collaborate on all of them
+- 📫 How to reach me 077 2415641
+- 😄 Pronouns: shewin
+- ⚡ Fun fact: coding,Traveling,laughing
